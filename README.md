@@ -17,5 +17,6 @@ https://500.co/startups
 
 VC Blogs: 
 https://tomtunguz.com/
+
 https://haseebq.com/
 

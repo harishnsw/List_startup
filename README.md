@@ -14,3 +14,8 @@ Free Course : https://www.startupschool.org/     (YC)
 
 Accelerators:
 https://500.co/startups
+
+VC Blogs: 
+https://tomtunguz.com/
+https://haseebq.com/
+
